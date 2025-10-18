@@ -22,7 +22,7 @@ Support page for Nomi Log  app
 ---
 
 ## 📩 お問い合わせ
-不具合やご意見は 
+不具合やご意見は j03015318@gmail.com
  までご連絡ください。  
 
 ---
